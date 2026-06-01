@@ -1,0 +1,5 @@
+Donations are greatly appreciated 
+
+SOLANA : GhAoh9GNKP5jJLTb77jAu5eekkqPA1Rf8dtsZZb7w43K
+ETH : 0x41785F09D93D0f000124Bcf7ed70e693D5B9255F
+BTC : bc1qe66tmm39gklt3prf2ltcyf48mv9l77fua7086x
